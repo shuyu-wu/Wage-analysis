@@ -1,2 +1,0 @@
-# Wage-analysis
-# Wage-analysis
